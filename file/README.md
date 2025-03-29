@@ -1,1 +1,0 @@
-*You Dont have the access to the project, Please ask the Admin to access*
